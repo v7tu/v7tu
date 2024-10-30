@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @v7tu
-- 👀 I’m interested in coding discord bots
+- 👀 I’m interested in coding 
 - 🌱 I’m currently learning to get better
 - 📫 How to reach me: Discord: @v7tu
 - ⚡ Fun fact: Im a diamond player in League of Legends
